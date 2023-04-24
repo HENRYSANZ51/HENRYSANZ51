@@ -1,4 +1,3 @@
-### Hi there 👋
-- Me llamo Henry, soy de Lima, Perú.
-- 
+### Hi there 👋 soy HENRY SANCHEZ.
+
 
